@@ -6,6 +6,8 @@
 |**Roteiro**: Josh Friedman, Jeff Kaplan|  
 |**Elenco**: Pedro Pascal, Vanessa Kirby, Joseph Quinn|  
 |**Título original**: The Fantastic Four: First Steps|  
-|**Referências**| 
-|[Quarteto Fantástico: Primeiros Passos](https://www.adorocinema.com/filmes/filme-226116/)|
+
+**Referências**: 
+
+ - [Quarteto Fantástico: Primeiros Passos](https://www.adorocinema.com/filmes/filme-226116/)
 
